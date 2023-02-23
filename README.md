@@ -1,1 +1,1 @@
-![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+![Alt Text](https://www.collegeessayadvisors.com/wp-content/uploads/2016/01/cat-typing-2.gif)
